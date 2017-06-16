@@ -14,6 +14,7 @@ Asistent: Zubača Jasmina
 
 Predmetni nastavnik: V. prof. dr. Samim Konjicija, dipl.ing.el.
 
+Akademska godina: 2016/2017
 
 
 Studenti:
